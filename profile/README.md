@@ -9,6 +9,9 @@ _____.___.______________________.____         .___
 
 ```
 
-Links (coming soon)
+![Continue logo](https://i.imgur.com/46BCzoC.png)
 
-- Download macOS app
+
+(coming soon)
+
+
