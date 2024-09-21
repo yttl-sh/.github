@@ -12,7 +12,7 @@
                                              
 ```
 
-![Continue logo](https://i.imgur.com/46BCzoC.png)
+![Continue logo](https://i.imgur.com/M2VKv3u.gif)
 
 
 (coming soon)
